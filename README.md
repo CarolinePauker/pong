@@ -40,3 +40,7 @@ El objetivo del programa es permitir a los jugadores disfrutar de una versión d
 ## Fecha – 
 
 **Fecha de Creación**: 22 de diciembre de 2024 
+
+## Link de la presentación – 
+
+https://www.canva.com/design/DAGZ3hEBTR4/7HI128R02zzDyQplqz_euA/editutm_content=DAGZ3hEBTR4&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton
